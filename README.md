@@ -2,7 +2,7 @@
 
 Bridging Corporate Excellence with Engineering and Intelligent Systems.
 
-[Email]( emmanuelabi184@gmail.com) | [GitHub](emmanuelabi184-cpu/emmanuelabi184-cpu) | [Linkedin] ( 
+[Email]( emmanuelabi184@gmail.com) | [GitHub](emmanuelabi184-cpu/emmanuelabi184-cpu) | [Linkedin] (www.linkedin.com/in/
 emmanuel-lari-abi)
 
 🎯 About Me
